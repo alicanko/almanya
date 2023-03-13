@@ -1,5 +1,5 @@
 Gereken belgeler:
-TC kimlik kartı
+TC kimlik kartı  
 Almanya'dan alınan Anmeldung belgesi
 
 Münih Başkonsolosluğu adres: Menzinger Str. 3 80638 München, Deutschland  
