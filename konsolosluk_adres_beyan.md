@@ -1,4 +1,4 @@
-Gereken belgeler:
+Gereken belgeler:  
 TC kimlik kartı  
 Almanya'dan alınan Anmeldung belgesi
 
