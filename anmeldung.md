@@ -11,7 +11,7 @@ than you choose
 
 Than you choose 
 
-- Pasing
+- Bürgerbüro Pasing (or wherever you are close to)
 
 Than you choose the day  
 Than you choose the time   
